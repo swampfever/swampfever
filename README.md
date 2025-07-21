@@ -1,3 +1,8 @@
-go check my rentry and get free food if u sign  ata or strawpage weeeeeeeeeeeeeeeeee
+art by Kevin Fagaragan
+![](https://files.catbox.moe/526rpf.gif)
 
-![](https://files.catbox.moe/xcxf8u.webp)
+
+
+
+
+sign ata + straw! pretty please?

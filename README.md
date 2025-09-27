@@ -2,5 +2,3 @@
 
 
 ![](https://files.catbox.moe/526rpf.gif)
-
-art by Kevin Fagaragan (graphic)

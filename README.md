@@ -1,7 +1,7 @@
-swamp / mick / arthur; more [here](https://en.pronouns.page/@snipers)
+swamp / mick / arthur
 
 c+h friendly
 
  : ̗̀⁍
 
-[information](https://guns.lol/coldcolter)
+[information (rentry sort of wip)](https://guns.lol/coldcolter)

@@ -4,4 +4,4 @@ c+h friendly
 
  : ̗̀⁍
 
-[information](https://guns.lol/coldcolter)
+[information](https://rentry.co/twinsanity)

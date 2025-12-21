@@ -1,4 +1,4 @@
-swamp / mick / arthur
+swamp / mick / cortex/tex
 
 c+h friendly
 

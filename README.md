@@ -4,4 +4,4 @@ c+h friendly
 
  : ̗̀⁍
 
-[information](https://rentry.co/twinsanity)
+[information](https://rentry.co/twinsanity) <- BEST VIEWED ON PC

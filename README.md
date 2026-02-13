@@ -10,4 +10,4 @@ c+h friendly
 
 [quicker guide](https://rentry.co/stormyascent)
 
-![dummy dummy](https://files.catbox.moe/m2w4kx.gif)
+![shopkeeper](https://files.catbox.moe/m2w4kx.gif)

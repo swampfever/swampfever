@@ -1,4 +1,4 @@
-# $${\color{red}Welcome \space \color{red}to \space \color{red}my \space \color{red}store.}$$
+# $${\color{orange}Hey, \space \color{yellow}Jim.}$$
 
 
 swamp / mick / jay
